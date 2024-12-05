@@ -3,7 +3,8 @@
 ![](https://64.media.tumblr.com/742a2145ae030762f938de7254aec0e9/3461ade0a7114c32-68/s2048x3072/fd73f5d37ed1818b196b091896d7cc56368e520d.pnj)
 
 
-![](https://64.media.tumblr.com/e136a274cdc2869144d069bbe8cdb072/1404b920ad3efd84-3c/s540x810/2cbdaa3e3ca26ceaa04db66b24e0590ed505ae3f.pnj)
+![](https://github.com/user-attachments/assets/c236e307-3d88-4a0b-b87d-ad3095094243)
+
 
 ﹒◞⠀
 
