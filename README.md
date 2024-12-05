@@ -1,23 +1,15 @@
+![](https://files.catbox.moe/eqjgom.png)
+
+[![match with my friendoo!! <3 THE ART IS FROM FLAREBOI ON TUMBLR, I DO NOT OWN ANY OF THE ART ONLY THE GRAPHICS COLORS AND EDITS CREDITS TO FLAREBOI GNG!!! (I love your art btw bro..)](https://files.catbox.moe/698w96.png)](https://rentry.co/alanshater)
 
 
-![](https://64.media.tumblr.com/742a2145ae030762f938de7254aec0e9/3461ade0a7114c32-68/s2048x3072/fd73f5d37ed1818b196b091896d7cc56368e520d.pnj)
+‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/4sg065.gif)⠀⠀Virus⠀or⠀Dust⠀⠀﹒◞⠀⠀! 
+⠀⠀⠀⠀⠀⁺⠀⠀﹒⠀⠀¹⠀HE⠀⠀OR⠀⠀²⠀IT⠀[_+_](https://en.pronouns.page/@Viiirusz)⠀◞ 
+![](https://files.catbox.moe/uu2ijr.png)
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/lbyup7.gifv)◡◡⠀⠀  [ASDP](https://rentry.co/ASDP)♡⠀⠀ Eng⠀⠀Kurd ![](https://files.catbox.moe/ajxr2l.gif)
 
-![](https://github.com/user-attachments/assets/c236e307-3d88-4a0b-b87d-ad3095094243)
+![](https://files.catbox.moe/uu2ijr.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[O1](https://discord.com/users/898567520351567933)⠀  [O2](https://rentry.co/bladewrist)⠀⠀[Carrd](https://vira6ot.carrd.co/)⠀[strwpg](https://UICTIM.straw.page/)⠀⠀︶︶
 
-
-﹒◞⠀
-
-![](https://images.cooltext.com/5717130.png)
-
-
-  
-
-
-  
-   ![](https://images.cooltext.com/5717129.png) 
-
-![](https://images.cooltext.com/5717128.png) { ![](https://64.media.tumblr.com/0dd96b649867d0a59ac99cd179c8a649/8fa2c085185c0dd9-b9/s100x200/5634a200f87dcc7ad25ab42095a4783afae4d64e.gifv) }
-
-
-![](https://64.media.tumblr.com/2e31ad5a11add92cda28c0634f58d72d/3461ade0a7114c32-59/s2048x3072/cd00528b63b1bf0cb06e8c272541b897b49b031f.pnj)
+![](https://files.catbox.moe/x2adxz.png)
